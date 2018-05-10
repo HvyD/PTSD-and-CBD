@@ -1,6 +1,6 @@
 # PTSD-and-CBD
 
-
+ #COMPARE AND CONTRAST PAPER IS THE MOST RECENT DRAFT. NEW MORE CURRENT CITATIONS.
 These are papers I wrote over ten years ago and then recycled it for another class in 2011. In my studies, to figure out my own PTSD and other wartime brain damage I connected the dots of parts of th brain and CBD effects on repairing those structures. 
 
 PTSD and alternative treatments like CBD
